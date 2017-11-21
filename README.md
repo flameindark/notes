@@ -1,2 +1,2 @@
 # notes
-Some notes on the books I read
+Some notes of the book I read
