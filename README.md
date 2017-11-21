@@ -1,2 +1,2 @@
 # notes
-Some notes of the book I read
+读书笔记
